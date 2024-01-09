@@ -1,6 +1,6 @@
 ## 简介
 
-油管：[绵阿羊](https://www.youtube.com/channel/UC9xYHJIRj7oXTPYYrTv2U2A)
+油管：123456
 
 ## 注意事项
 
